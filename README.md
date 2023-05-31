@@ -1,4 +1,4 @@
-Hola! Soy Luis Chicano. Actualmente estoy estudiando mi primer año de DAW y quiero aprender lo máximo posible!
+Hola! Soy Luis Chicano. Actualmente estoy estudiando mi segundo año de DAW y quiero aprender lo máximo posible!
 
 
 <!---
